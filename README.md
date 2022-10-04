@@ -1,4 +1,4 @@
-# Договор о объяденении MeigoStudios и BrainStudios.
+# Договор о объядинении MeigoStudios и BrainStudios.
 
 Обязанности и условия MeigoStudios:
 
